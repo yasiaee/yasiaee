@@ -1,6 +1,6 @@
 ### Hi there 👋
 - 🔭 I’m currently student at ... UMaine
-- 🌱 I’m currently learning everything 😄 
+- 🌱 I’m currently learning EVERYTHING! 😄 
 - 👯 I’m looking to collaborate on ... Python
 - 📫 How to reach me: ... yasaman.asiaee@maine.edu
 - 😄 Pronouns: ... She/Her
